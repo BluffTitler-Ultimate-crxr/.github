@@ -2,6 +2,6 @@
 
 The program caters to both beginners and professionals seeking to enhance their video projects with dynamic text animations and effects.​ Supports exporting animations as video files (MP4, AVI) or as numbered frames (JPG, PNG) in various resolutions and with or without alpha channels, ensuring compatibility with other video editing software.
 
-## [➤ ►🌍💻📱👉 BluffTitler Ultimate](https://tinyurl.com/mwet8pnw)
+## [➤ ►🌍💻📱👉 BluffTitler Ultimate](https://tinyurl.com/42mp55n2)
 
-## [➤ ►🌍💻📱👉 BluffTitler Ultimate 2025](https://tinyurl.com/mwet8pnw)
+## [➤ ►🌍💻📱👉 BluffTitler Ultimate 2025](https://tinyurl.com/42mp55n2)
